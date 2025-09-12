@@ -1,2 +1,0 @@
-# vijayalakshmi-s
-resume
